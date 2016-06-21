@@ -1,3 +1,3 @@
-Aditya-Chowdhry.github.io
+karan-arora95.github.io
 =========================  
-##www.adityachowdhry.me
+practice makes a man perfect
